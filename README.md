@@ -7,3 +7,5 @@
 - ### Contato: dennyneves67@gmail.com
 
 ![](https://media.tenor.com/iC3TCiY-cV4AAAAM/albert-einstein-lol.gif)
+
+>Editado por DennyNeves
